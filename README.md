@@ -1,6 +1,6 @@
 ## Welcome to smart kids
 
-Best *free* resources to raise smart, well-roundedsmart kids.
+Best **free** resources to raise smart, well-rounded kids.
 
 # General
 ### [PSchool : Lot of learning activities](https://pschool.in/)
