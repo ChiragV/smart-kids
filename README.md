@@ -15,6 +15,6 @@ Best **free** resources to raise smart, well-rounded kids.
 ### [Kids Hut YouTube channel (video)](https://www.youtube.com/user/kidshut/)
 
 # Improve imangination with drawing
-### [Drawing for Kids: Learn How to Draw 25 Cartoons Step-by-Step](https://www.udemy.com/course/drawing-for-kids-learn-how-to-draw-cartoons-step-by-step/)
+### [Drawing for Kids: Learn How to Draw 25 Cartoons Step-by-Step (Udemy video)](https://www.udemy.com/course/drawing-for-kids-learn-how-to-draw-cartoons-step-by-step/)
 
 
