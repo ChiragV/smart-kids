@@ -13,6 +13,7 @@ Best **free** resources to raise smart, well-rounded kids.
 ### [Even and Odd Numbers1](https://www.youtube.com/watch?v=3iQqmmG8wQQ)
 ### [Even and Odd Numbers2](https://www.youtube.com/watch?v=6y2gMTK83Ro)
 ### [All about circle](https://www.youtube.com/watch?v=CTDtiXHorgc)
+### [Addition of Three Digit Numbers](https://www.youtube.com/watch?v=VzdEhL44MRQ)
 
 # Improve imangination with stories
 ### [Story Time has lots of great stories for everyone to listen to (audio)](https://bedtime.fm/storytime)
