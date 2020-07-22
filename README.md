@@ -7,8 +7,8 @@ Best **free** resources to raise smart, well-rounded kids.
 ### [Wikijunior](https://en.wikibooks.org/wiki/Wikijunior)
 
 # Learn 
-### [How to watch time using analog clock (video)](https://www.youtube.com/watch?v=bZY8WNMRcQ8 )
-### [Continents of the world (video)](https://www.youtube.com/watch?v=YrT5jcnu8NA)
+### [How to watch time using analog clock ](https://www.youtube.com/watch?v=bZY8WNMRcQ8 )
+### [Continents of the world](https://www.youtube.com/watch?v=YrT5jcnu8NA)
 ### [Oceans of the World](https://www.youtube.com/watch?v=q-up6zuCQQg)
 ### [Even and Odd Numbers1](https://www.youtube.com/watch?v=3iQqmmG8wQQ)
 ### [Even and Odd Numbers2](https://www.youtube.com/watch?v=6y2gMTK83Ro)
