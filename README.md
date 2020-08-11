@@ -16,6 +16,7 @@ Best **free** resources to raise smart, well-rounded kids.
 ### [Addition of Three Digit Numbers](https://www.youtube.com/watch?v=VzdEhL44MRQ)
 ### [Gravity](https://www.youtube.com/watch?v=3CoCsDrBsYs)
 ### [Traffic Rules](https://youtu.be/9rPEfQP1Ofs)
+### [History of Clothing](https://youtu.be/zaW0si0WuUQ)
 
 # Economics
 ### [What is a Market?](https://www.youtube.com/watch?v=k2T-bcobz_8)
