@@ -24,6 +24,7 @@ Best **free** resources to raise smart, well-rounded kids.
 
 # Improve imangination with stories
 ### [Story Time has lots of great stories for everyone to listen to (audio)](https://bedtime.fm/storytime)
+### [Kids Short Stories](https://kidsshortstories.com/)
 ### [Kids Hut YouTube channel (video)](https://www.youtube.com/user/kidshut/)
 
 # Improve imangination with drawing
